@@ -1,0 +1,1 @@
+# Normalize-array-of-the-companies-Normalize-array-of-the-companies-task
